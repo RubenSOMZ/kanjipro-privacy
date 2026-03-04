@@ -1,0 +1,1 @@
+# kanjipro-privacy
